@@ -1,4 +1,4 @@
-# 
+# Personnalisé Claude Code Telegram Remote Launcher modèles. Avec visualisation des données et optimisation de modèles — optimisé pour des performances maximales.
 
 
 
